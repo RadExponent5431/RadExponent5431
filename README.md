@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @RadExponent5431
+- 👀 I’m interested in programming and the people in the Open Source Community!
+- 🌱 I’m currently learning how to write good code.
+- 💞️ I’m looking to collaborate with anyone who wants to cooperate!
+- 📫 You can reach me via Discord (RadExponent5431) or via Mail rad.exponent5431@gmail.com
+- 😄 Pronouns: he/ him
+- ⚡ Fun fact: ...
